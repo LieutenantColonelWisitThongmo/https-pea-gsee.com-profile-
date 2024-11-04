@@ -1,3 +1,6 @@
+![1000002601](https://github.com/user-attachments/assets/783ad87b-8cba-4f9f-934a-ed8544269bd4)
+![1000002600](https://github.com/user-attachments/assets/342dc42a-4c03-4089-9fcd-af8b85af21e0)
+![1000002599](https://github.com/user-attachments/assets/2f7c30aa-857e-4f49-9d9c-f48f3f924a50)
 https://pea-gsee.com/profile/
 https://www.google.co.th/maps/place/การไฟฟ้าส่วนภูมิภาคอำเภอเชียงคาน/@17.8760385,101.6526029,17z/data=!3m1!4b1!4m6!3m5!1s0x3126c885d0a4160f:0xbce98e895a718678!8m2!3d17.8760385!4d101.6551778!16s%2Fg%2F1tg13643?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
 https://www.google.co.th/maps/place/การไฟฟ้าส่วนภูมิภาคอำเภอนาด้วง/@17.4775164,101.9903111,17z/data=!3m1!4b1!4m6!3m5!1s0x312159ee30d8bf6f:0x14897d5d9570ec66!8m2!3d17.4775164!4d101.992886!16s%2Fg%2F1hm64p_6f?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
