@@ -1,3 +1,4 @@
+123.242.161.136/edoc/
 ![1000002602](https://github.com/user-attachments/assets/f5c6add8-7439-49cb-9203-751071a1646a)
 ![1000002604](https://github.com/user-attachments/assets/749ed690-1600-4ae1-a3f9-1b933aaf73ba)
 ![1000002603](https://github.com/user-attachments/assets/adaa5bff-161d-4169-92f4-7757beb975e1)
