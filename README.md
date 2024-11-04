@@ -1,3 +1,10 @@
+https://pea-gsee.com/profile/
+https://www.google.co.th/maps/place/การไฟฟ้าส่วนภูมิภาคอำเภอเชียงคาน/@17.8760385,101.6526029,17z/data=!3m1!4b1!4m6!3m5!1s0x3126c885d0a4160f:0xbce98e895a718678!8m2!3d17.8760385!4d101.6551778!16s%2Fg%2F1tg13643?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
+https://www.google.co.th/maps/place/การไฟฟ้าส่วนภูมิภาคอำเภอนาด้วง/@17.4775164,101.9903111,17z/data=!3m1!4b1!4m6!3m5!1s0x312159ee30d8bf6f:0x14897d5d9570ec66!8m2!3d17.4775164!4d101.992886!16s%2Fg%2F1hm64p_6f?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
+https://www.google.co.th/maps/place/การไฟฟ้าส่วนภูมิภาคอำเภอปากชม+EGAT/@18.0237615,101.8820173,17z/data=!3m1!4b1!4m6!3m5!1s0x3126bd320a73322f:0x35e2bb27f02da9eb!8m2!3d18.0237615!4d101.8845922!16s%2Fg%2F1hm2grl18?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
+https://www.google.co.th/maps/search/การไฟฟ้าส่วนภูมิภาคอำเภอนาแห้ว/@17.3043905,100.210946,8z/data=!3m1!4b1?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
+https://www.google.co.th/maps/search/การไฟฟ้าส่วนภูมิภาคอำเภอวังสะพุง/@17.2987806,101.7444418,14z/data=!3m1!4b1?hl=th&entry=ttu&g_ep=EgoyMDI0MTAyOS4wIKXMDSoASAFQAw%3D%3D
+https://eservice.pea.co.th/Account/Login?ReturnUrl=%2f
 123.242.161.136/edoc/
 ![1000002602](https://github.com/user-attachments/assets/f5c6add8-7439-49cb-9203-751071a1646a)
 ![1000002604](https://github.com/user-attachments/assets/749ed690-1600-4ae1-a3f9-1b933aaf73ba)
